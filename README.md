@@ -1,4 +1,4 @@
-## Hello there!
+## Hi!
 
 I'm Diogo Fernandes. I teach numbers to talk.
 
