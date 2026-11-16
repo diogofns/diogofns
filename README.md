@@ -1,6 +1,6 @@
-## Hi!
+## Hi, I'm Diogo!
 
-I'm Diogo Fernandes. I teach numbers to talk.
+I teach numbers to talk.
 
 ## About me
 
